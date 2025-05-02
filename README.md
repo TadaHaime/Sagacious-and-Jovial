@@ -1,4 +1,5 @@
 # Sagacious & Jovial
+## "Wisdom in innovation, Joyous Design."
 
 Welcome to Sagacious & Jovial, where Wisdom gets aboard Joyful Innovation!
 
